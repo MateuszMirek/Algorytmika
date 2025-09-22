@@ -1,0 +1,2 @@
+# Algorytmika
+wypuśćcie mnie
